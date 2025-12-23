@@ -19,6 +19,7 @@ Speed
 User experience
 
 ## OUTPUT
+[Gokul D R (25017732) EX 1.docx](https://github.com/user-attachments/files/24312715/Gokul.D.R.25017732.EX.1.docx)
 
 
 ## RESULT
